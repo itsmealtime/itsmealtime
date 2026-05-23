@@ -3,7 +3,7 @@
 
 <p align="center" 
   
-![](https://i.pinimg.com/236x/c0/b5/0b/c0b50b51cc908037c3eea9b1a7292446.jpg) 
+![](https://static.wikia.nocookie.net/continued-exe/images/8/8c/NikuRef.png/revision/latest/scale-to-width-down/250?cb=20250425140724) 
 
 
 
