@@ -11,7 +11,7 @@
 
    ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 
-![](https://media.sonic-city.net/2024/04/image-167.png)
+![](https://static.wikia.nocookie.net/continued-exe/images/4/46/Pose_for_the_Fans.jpg/revision/latest/scale-to-width-down/250?cb=20250616084926)
 
 <p align="center" 
  
