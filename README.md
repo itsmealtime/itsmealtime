@@ -15,7 +15,7 @@
 
 <p align="center" 
  
-<a  ˚₊‧꒰ა <a href="https://blazetcsradio.straw.page/">Strawp</a> ✦ <a href="https://guns.lol/blazetcsradio">Guns.lol</a> ✦ <a href="https://rewritersradio.atabook.org/">ATAbook</a> ✦ <a href="https://en.pronouns.page/@MythicWaste">Prns</a> ໒꒱ ‧₊˚
+<a  ˚₊‧꒰ა <a href="https://itsmealtime.straw.page/">Strawp</a> ✦ <a href="https://guns.lol/blazetcsradio">Guns.lol</a> ✦ <a href="https://rewritersradio.atabook.org/">ATAbook</a> ✦ <a href="https://en.pronouns.page/@MythicWaste">Prns</a> ໒꒱ ‧₊˚
 
 <p align="center" 
 。𖥔　a real scourge all the same 𓂋 ᭡
@@ -33,7 +33,7 @@ fandoms: sth/sonic.exe/sonic originals, fnaf, deltarune, dandy's world, slopsake
 
 other stuff that needs to be said uh
 
-my name is Blaze but i usually go by Myth (that's right, name change)
+my name is Niku but i usually go by Myth (that's right, name change)
 
 uhhhhhhhhhh c+h at anytime unless the person i'm cuddling with says no
 
@@ -45,4 +45,4 @@ i thinks thats all??
 
 ˖.✦ ݁˖
 
-66 swagalicious blazers
+66 birds n beasts.
