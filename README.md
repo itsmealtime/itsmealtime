@@ -43,6 +43,11 @@ PLEASE follow my alt as well or at least check it out - but ig i can't force you
 
 i thinks thats all??
 
+![](https://static.wikia.nocookie.net/continued-exe/images/8/89/Niku_Maid.png/revision/latest/scale-to-width-down/250?cb=20260128032906) 
+
+
+
+<p align="center"
 ˖.✦ ݁˖
 
 66 birds n beasts.
