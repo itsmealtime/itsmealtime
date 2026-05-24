@@ -29,7 +29,7 @@ husband, please follow him
 
 ✦•┈๑⋅⋯⋯⋅๑┈•✦
 
-fandoms: sth/sonic.exe/sonic originals, fnaf, deltarune, dandy's world, slopsaken, ppt, jjba, vocaloids, dod, grace, sinister minds, blocktales, phighting!, femtanyl, bad things, crashbox, tfc, and SO many more bro
+fandoms: sth/sonic.exe/sonic originals, fnaf, deltarune, dandy's world, slopsaken, ppt, jjba, vocaloids, dod, grace, sinister minds, blocktales, phighting!, femtanyl, bad things, crashbox, tfc, alnst and SO many more bro
 
 other stuff that needs to be said uh
 
