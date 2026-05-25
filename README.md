@@ -50,4 +50,4 @@ i thinks thats all??
 <p align="center"
 ˖.✦ ݁˖
 
-66 birds n beasts.
+67 birds n beasts.
