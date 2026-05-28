@@ -15,7 +15,7 @@
 
 <p align="center" 
  
-<a  ˚₊‧꒰ა <a href="https://itsmealtime.straw.page/">Strawp</a> ✦ <a href="https://guns.lol/blazetcsradio">Guns.lol</a> ✦ <a href="https://rewritersradio.atabook.org/">ATAbook</a> ✦ <a href="https://en.pronouns.page/@MythicWaste">Prns</a> ໒꒱ ‧₊˚
+<a  ˚₊‧꒰ა <a href="https://itsmealtime.straw.page/">Strawp</a> ✦ <a href="https://guns.lol/niku_myth">Guns.lol</a> ✦ <a href="https://rewritersradio.atabook.org/">ATAbook</a> ✦ <a href="https://en.pronouns.page/@MythicWaste">Prns</a> ໒꒱ ‧₊˚
 
 <p align="center" 
 。𖥔　a real scourge all the same 𓂋 ᭡
