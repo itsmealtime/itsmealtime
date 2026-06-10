@@ -51,7 +51,7 @@ i thinks thats all??
 <p align="center"
 ˖.✦ ݁˖
 
-68 birds n beasts.
+70 birds n beasts.
 
 oh and look at my chud husband bro GenesisX
 
