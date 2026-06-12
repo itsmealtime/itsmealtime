@@ -28,7 +28,7 @@ href="https://github.com/deadlypoisonn">@deadlypoisonn</a>
 
 </p>
 
-✦•┈๑⋅⋯⋯⋅๑┈•✦
+✦•┈๑⫘⫘⫘⫘๑┈•✦
 
 fandoms: sinister minds, sth/sonic.exe/sonic originals, fnaf, deltarune, dandy's world, slopsaken, ppt, jjba, vocaloids, dod, grace, sinister minds, blocktales, phighting!, femtanyl, bad things, crashbox, tfc, alnst and SO many more bro i cant list them all im so sorry BUTTTT you can ask :D
 
