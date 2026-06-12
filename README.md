@@ -1,9 +1,9 @@
 <div align=center>
-<h1 align="center">❝ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Gravitas+One&size=18&pause=1000&color=730D15&center=true&vCenter=true&width=440&lines=One+Life,+Just+One+Life..." alt="Typing SVG" /></a> ❞</h1>
+<h1 align="center">❝ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Gravitas+One&size=18&pause=1000&color=b21807&center=true&vCenter=true&width=440&lines=Just+Try+and+Take+It+Back,;I'll+Only+Fight+Harder!" alt="Typing SVG" /></a> ❞</h1>
 
 <p align="center" 
   
-![](https://static.wikia.nocookie.net/continued-exe/images/8/8c/NikuRef.png/revision/latest/scale-to-width-down/250?cb=20250425140724) 
+![](https://i.ytimg.com/vi/mG1MCDVIyG4/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLDDjaovvJCgZYbUbTFaNlohdEzhmw) 
 
 
 
@@ -11,7 +11,7 @@
 
    ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 
-![](https://static.wikia.nocookie.net/continued-exe/images/4/46/Pose_for_the_Fans.jpg/revision/latest/scale-to-width-down/250?cb=20250616084926)
+![](https://i.audiomack.com/rainworldscavenger/bdb9411ea5.webp?width=1000&height=1000)
 
 <p align="center" 
  
@@ -30,28 +30,28 @@ href="https://github.com/deadlypoisonn">@deadlypoisonn</a>
 
 ✦•┈๑⋅⋯⋯⋅๑┈•✦
 
-fandoms: sth/sonic.exe/sonic originals, fnaf, deltarune, dandy's world, slopsaken, ppt, jjba, vocaloids, dod, grace, sinister minds, blocktales, phighting!, femtanyl, bad things, crashbox, tfc, alnst and SO many more bro
+fandoms: sinister minds, sth/sonic.exe/sonic originals, fnaf, deltarune, dandy's world, slopsaken, ppt, jjba, vocaloids, dod, grace, sinister minds, blocktales, phighting!, femtanyl, bad things, crashbox, tfc, alnst and SO many more bro i cant list them all im so sorry BUTTTT you can ask :D
 
 other stuff that needs to be said uh
 
-my name is Niku but i usually go by Myth (that's right, name change)
+my name is Faker- either Solis or just Faker, idrc i love them both and i AM them, but i usually go by Myth
 
 uhhhhhhhhhh c+h at anytime unless the person i'm cuddling with says no
 
-any ships EXCEPT the obvious ones
+any ships (yes including SOME selfships) EXCEPT the obvious ones
 
 PLEASE follow my alt as well or at least check it out - but ig i can't force you so uh
 
 i thinks thats all??
 
-![](https://static.wikia.nocookie.net/continued-exe/images/8/89/Niku_Maid.png/revision/latest/scale-to-width-down/250?cb=20260128032906) 
+![](https://pbs.twimg.com/media/HJr930_XcAE2RDq?format=jpg&name=small) 
 
 
 
 <p align="center"
 ˖.✦ ݁˖
 
-70 birds n beasts.
+70 reasons.
 
 oh and look at my chud husband bro GenesisX
 
