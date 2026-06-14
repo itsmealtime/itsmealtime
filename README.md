@@ -9,13 +9,15 @@
 
 <p align="center"
 
-   ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
+◯ ⭑ ☽ ⭑ ◑ ⭑ ● ⭑ ◐ ⭑ ☾︎ ⭑ ◯
+
+<p align="center"
 
 ![](https://i.audiomack.com/rainworldscavenger/bdb9411ea5.webp?width=1000&height=1000)
 
 <p align="center" 
  
-<a  ˚₊‧꒰ა <a href="https://itsmealtime.straw.page/">Strawp</a> ✦ <a href="https://guns.lol/faker_myth">Guns.lol</a> ✦ <a href="https://itsmythtime.atabook.org/">ATAbook</a> ✦ <a href="https://en.pronouns.page/@MythicWaste">Prns</a> ໒꒱ ‧₊˚
+꧁ ༺ <a href="https://itsmealtime.straw.page/">Strawp</a> ⸸ <a href="https://guns.lol/faker_myth">Guns.lol</a> ⸸ <a href="https://itsmythtime.atabook.org/">ATAbook</a> ⸸ <a href="https://en.pronouns.page/@MythicWaste">Prns</a> ༻ ꧂
 
 <p align="center" 
 。𖥔　a real scourge all the same 𓂋 ᭡
