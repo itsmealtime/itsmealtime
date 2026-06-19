@@ -54,7 +54,3 @@ i thinks thats all??
 ˖.✦ ݁˖
 
 73 reasons.
-
-oh and look at my chud husband bro GenesisX
-
-<img width="216" height="252" alt="image" src="https://github.com/user-attachments/assets/c81156cc-3f4e-4feb-a776-71a845c4a104" />
