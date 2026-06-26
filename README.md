@@ -17,7 +17,7 @@
 
 <p align="center" 
  
-꧁ ༺ <a href="https://itsmealtime.straw.page/">Strawp</a> ⸸ <a href="https://guns.lol/faker_myth">Guns.lol</a> ⸸ <a href="https://itsmythtime.atabook.org/">ATAbook</a> ⸸ <a href="https://en.pronouns.page/@MythicWaste">Prns</a> ༻ ꧂
+꧁ ༺ <a href="https://ihateitsomuch.straw.page/">Strawp</a> ⸸ <a href="https://guns.lol/faker_myth">Guns.lol</a> ⸸ <a href="https://itsmythtime.atabook.org/">ATAbook</a> ⸸ <a href="https://en.pronouns.page/@MythicWaste">Prns</a> ༻ ꧂
 
 <p align="center" 
 。𖥔　a real scourge all the same 𓂋 ᭡
