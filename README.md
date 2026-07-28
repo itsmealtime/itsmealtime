@@ -32,15 +32,15 @@ href="https://github.com/deadlypoisonn">@deadlypoisonn</a>
 
 ✦•┈๑⫘⫘⫘⫘๑┈•✦
 
-fandoms: sinister minds, sth/sonic.exe/sonic originals, fnaf, deltarune, dandy's world, slopsaken, ppt, jjba, vocaloids, dod, grace, sinister minds, blocktales, phighting!, femtanyl, bad things, crashbox, tfc, alnst and SO many more bro i cant list them all im so sorry BUTTTT you can ask :D
-
-other stuff that needs to be said uh
+stuff that needs to be said uh
 
 my name is Faker- either Solis or just Faker, idrc i love them both and i AM them, but i usually go by Myth
 
 uhhhhhhhhhh c+h at anytime unless the person i'm cuddling with says no
 
 any ships (yes including SOME selfships) EXCEPT the obvious ones
+
+im a minor im a minor im a minor im a minor im a minor im a minor im a minor im a minor im a minor im a minor im a minor im a minor im a minor
 
 PLEASE follow my alt as well or at least check it out - but ig i can't force you so uh
 
