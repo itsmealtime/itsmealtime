@@ -34,7 +34,7 @@ href="https://github.com/deadlypoisonn">@deadlypoisonn</a>
 
 stuff that needs to be said uh
 
-my name is Faker- either Solis or just Faker, idrc i love them both and i AM them, but i usually go by Myth
+my name is St Solis, idrc i love them both and i AM them, but i usually go by Myth
 
 uhhhhhhhhhh c+h at anytime unless the person i'm cuddling with says no
 
@@ -53,4 +53,4 @@ i thinks thats all??
 <p align="center"
 ˖.✦ ݁˖
 
-124 reasons.
+137 reasons.
